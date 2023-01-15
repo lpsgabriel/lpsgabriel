@@ -1,4 +1,4 @@
-### Hi there! I'm Gabriel Lopes 🙃
+### Hello, I'm Gabriel Lopes 🙃
 
 </div>
 <div style="display: inline_block"><br>
